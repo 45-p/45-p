@@ -3,7 +3,7 @@
 Backend Dev 
 Obsessed with logic 👾 </>
 
-abt me:
+Abt me:
 addicted to coffee :)
 Hobby : building things
 
